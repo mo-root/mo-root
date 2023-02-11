@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/moin-mattar-8987841b4/](https://www.linkedin.com/in/moin-mattar-8987841b4/)
 
-- ⚡ Fun fact **I'm a fitness trainer**
+- ⚡ Fun fact **I'm a fitness trainer and a bodybuilder**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
